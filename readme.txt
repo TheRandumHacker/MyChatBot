@@ -1,0 +1,1 @@
+So yeah this is just a kind of placeholder text file for my ChatBot I'll put more stuff in here later :-)
